@@ -8,10 +8,10 @@
 - 💞️ **Je cherche à collaborer sur** : Des expériences interactives ou des sites/applis captivants.
 - 📫 **Me contacter** : [LinkedIn](https://www.linkedin.com/in/alinecoatanoan) | [Email](mailto:coatanoan.aline@outlook.com)
 
-## 🚨 **À la recherche d'une alternance Concepteur Développeur d'Applications** 🚨
+## 🚨 **À la recherche d'une entreprise pour un poste de Concepteur Développeur d'Applications** 🚨
 
 🔹 **Passionnée, motivée, prête à relever tous les défis !**
-🔹 **Disponible dès Septembre 2025 pour une alternance en Conception Developpement d'Applications.**
+🔹 **Disponible immédiatement**
 🔹 **Let's build something amazing ensemble !** 💻✨
 
 ## 🛠️ Stack actuelle
